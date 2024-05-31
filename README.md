@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kdmsignatures7
-- 👀 I’m interested in FREELANCE
+- 👀 I’m interested in Digital Marketing Jobs
 - 🌱 I’m currently learning DIGITAL MARKETING
 - 💞️ I’m looking to collaborate on PROJECTS ON SEO,SMM,SEM,METAADS
 - 📫 How to reach me EMAIL:KDMSIGNATURES@GMAIL.COM
